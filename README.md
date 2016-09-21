@@ -30,7 +30,7 @@
 ##### Secret
 ##### 그녀
 ##### 괜찮아
-##### 곁에곁에 
+##### 곁에 
 ##### Everybody
 ##### 별, 달, 밤
 ##### 이유 
@@ -49,6 +49,17 @@
 2010
 -------------------------------
 #### EP. Wonderland
+
+![alt tag](http://pds20.egloos.com/pds/201012/22/72/b0146272_4d11ccd1a907d.jpg)
+
+##### TV Show
+##### Save
+##### Feel Alright
+##### December
+##### Rock Doves
+##### 그런 너
+##### Wonderland
+##### 빙하
 
 ## 2. 검정치마
 
