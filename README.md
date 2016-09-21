@@ -3,12 +3,14 @@
 
 ## 1. 짙은
 
-1인 밴드 :성용욱
+1인 밴드 : 성용욱
 
 -------------------------------
 
 2005
-#### EP <Rock Doves>
+
+-------------------------------
+#### EP<Rock Doves>
 
 ![alt tag](http://www.generasia.com/w/images/9/98/Rock_Doves.jpg)
 
@@ -22,7 +24,11 @@
 
 2008
 
-#### 1집 <짙은>
+-------------------------------
+#### 1집<짙은>
+
+![alt tag](http://cfile29.uf.tistory.com/image/152AE51B4AE3C4BAE8EBAA)
+
 ##### 나비섬나비섬 
 ##### IF
 ##### Secret
