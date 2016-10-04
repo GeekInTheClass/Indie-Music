@@ -23,7 +23,7 @@
 -------------------------------
 #### 1집. 짙은
 
-![alt tag](http://cfile29.uf.tistory.com/image/152AE51B4AE3C4BAE8EBAA)
+![alt tag](http://i.maniadb.com/images/album/200/200544_1_f.jpg)
 
 ##### - 나비섬 
 ##### - IF
@@ -43,7 +43,7 @@
 
 ![alt tag](https://s.mxmcdn.net/images-storage/albums/0/4/8/1/4/6/27641840_350_350.jpg)
 
-##### December 
+##### - December 
 
 -------------------------------
 2010
